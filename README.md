@@ -7,7 +7,7 @@
 本字幕仅供学习交流使用，所有权归节目制作方及相关权利人所有。请于下载后24小时内删除，不得用于任何商业用途。
 
 ## 翻译进度
-发布平台：[哔哩哔哩](https://bilibili.com )。
+发布平台：[哔哩哔哩-超voltaction]((https://space.bilibili.com/33161711/lists/8895590?type=season))。
 
 ## 翻译进度
 
